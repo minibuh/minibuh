@@ -3,3 +3,5 @@
 [atabook](https://minibuh.atabook.org/)  [strawpage](https://minibuh.straw.page)
 
 art credit : [@xenquai on tumblr + pinterest](https://www.pinterest.com/xenquai/)
+
+<img src="https://komarev.com/ghpvc/?username=minibuh&base=20000&label=views&base=0&color=7f72ce&style=plastic"><br><br><br>
