@@ -1,4 +1,4 @@
-<img align="left" src="https://media.discordapp.net/attachments/1511421173211201769/1551034082723364945/scott-removebg-preview.png?ex=6ab0808e&is=6aaf2f0e&hm=22291f2c886b53fae8ca211267b9a0f4619a545bdfceccb0443b5167f04f7e3f&=&format=webp&quality=lossless">
+<img align="left" src="https://media.discordapp.net/attachments/1511421173211201769/1551034082723364945/scott-removebg-preview.png?ex=6ab3cc4e&is=6ab27ace&hm=9b707f63f108da2a0c52e7b2e10f00a3e361e21de25a320153a369f821efc0cc&=&format=webp&quality=lossless">
 
 [atabook](https://minibuh.atabook.org/)  [strawpage](https://minibuh.straw.page)
 
