@@ -12,3 +12,6 @@ also, ALSO!!!! the only reason i said whats in the screenshot below is because i
 ps. i didnt use the inspect took. i took a screenshot on my phone so you guys know i didnt inspecty it since youre so fucking adament on sucking coals left big toe. love your face.
 
 ![phone screenshot](https://media.discordapp.net/attachments/1561560733756555327/1561701084706381924/Untitled64_20261019072002.png?ex=6ad74ef9&is=6ad5fd79&hm=28fca59edc71f7406411e3cb9b4eeab0ff686b44dd7eb83c2741686ae95f1ba7&=&format=webp&quality=lossless&width=394&height=768)
+
+
+ps. to timmys thing in aethers ata, i wasnt asking if one 15 year old was single. i was asking if ANYONE was single. as a joke btw. but hey its immediately directed to the 15 year olds i guess
