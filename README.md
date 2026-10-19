@@ -2,7 +2,7 @@ hi im editing my readme to adress [coals](https://github.com/coalcarolynne) read
 
 if they all, referring to coal and her friends, weren't all freaking out and getting mad over the apology aether sent coal then this would still all be perfect in my pretty little world alright?? like even before my "hello... this is a tough crowd" i tried starting MULTIPLE conversations with the group while they were all still moving, before they were all off tab. if they didnt want me around, i'd prefer they tell me to my face rather than ignore me and say my suicidal ideations and attempts were suibaiting.
 
-also if coal didnt send some bullshit message while i was crying, having a panic attack and being suicidal i wouldnt have asked for her discord. i want to know why i was kept away from my friends discord in a time of need anyways! its not any of my business but i just want to know why
+also if coal didnt send some bullshit message on atabook while i was crying, having a panic attack and being suicidal i wouldnt have asked for her discord. i want to know why i was kept away from my friends discord in a time of need anyways! its not any of my business but i just want to know why
 
 I told the group that i loved them because i DO love them. i didnt want to push them away. i didnt know me wanting to kill myself was manipulation, i didnt know that me loving my friends was lovebombing, i didnt know that me having access to guns and going to shoot myself was suicide baiting.
 
@@ -15,3 +15,5 @@ ps. i didnt use the inspect took. i took a screenshot on my phone so you guys kn
 
 
 ps. to timmys thing in aethers ata, i wasnt asking if one 15 year old was single. i was asking if ANYONE was single. as a joke btw. but hey its immediately directed to the 15 year olds i guess
+
+also stop telling people that im a "grown ass woman" i literally turned 18 two, ALMOST three months ago. like im not even graduated highschool yet. i am not a "grown ass woman" im just of legal age LOL. plus, if someones SOO mentally ill like i am according to coals little group, am i really up there?:( stop trying to make me seem more mature than i am especially because a little was main front during our entire suicidal episode . a little was the one "lovebombing" "manipulating" and "suicide baiting" you btw. waaa!
