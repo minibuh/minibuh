@@ -17,3 +17,8 @@ ps. i didnt use the inspect took. i took a screenshot on my phone so you guys kn
 ps. to timmys thing in aethers ata, i wasnt asking if one 15 year old was single. i was asking if ANYONE was single. as a joke btw. but hey its immediately directed to the 15 year olds i guess
 
 also stop telling people that im a "grown ass woman" i literally turned 18 two, ALMOST three months ago. like im not even graduated highschool yet. i am not a "grown ass woman" im just of legal age LOL. plus, if someones SOO mentally ill like i am according to coals little group, am i really up there?:( stop trying to make me seem more mature than i am especially because a little was main front during our entire suicidal episode . a little was the one "lovebombing" "manipulating" and "suicide baiting" you btw. waaa!
+
+edit @ 11:30 pm est
+i didnt edit the message coal srnt me orignally, i cleared my atabook. look at timestamps pls! and the fact i ended up removing icons from my ata by the time the second message was sent. also the timezones in these are differnt to mine and coals timezone because atabook has one timezone in the central thing, it changes to your timezone on the individual guestbook.
+![first](https://media.discordapp.net/attachments/1561208645713395796/1561556090699784242/image-6.webp?ex=6ad81970&is=6ad6c7f0&hm=35ba32864801e1947e68a575736b5ef4f6d96d471b372a7ff0fa1f71a34833f2&=&format=webp)
+![second](https://media.discordapp.net/attachments/1561211516319957092/1561596574474309643/image.png?ex=6ad79664&is=6ad644e4&hm=4b15de927c51ed9c3a96d813460da7e68034bbdf40655c724fa97e5fe845a208&=&format=webp&quality=lossless)
